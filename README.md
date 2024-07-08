@@ -1,1 +1,0 @@
-# Dog-AR-spaceorg07nuge
